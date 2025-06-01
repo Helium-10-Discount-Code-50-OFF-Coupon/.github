@@ -1,4 +1,4 @@
-# Helium 10 Coupon Code (May 2025) → 50% Discount Promo
+# Helium 10 Coupon Code (June 2025) → 50% Discount Promo
 
 We’ve teamed up with Helium 10 to bring you **exclusive deals** that you won’t find just anywhere.
 
@@ -14,7 +14,7 @@ Personally, I think the 35% deal is a steal if you’re planning to commit for a
 
 ---
 
-## Active Helium 10 Coupon & Discount Code – (May 2025)
+## Active Helium 10 Coupon & Discount Code – (June 2025)
 
 Here’s a **quick snapshot** of what’s available this month. We’ve even listed the expiration dates (because, yes, those sneaky expiry dates matter!).
 
